@@ -1,0 +1,2 @@
+# Al-ya-zkaplan
+MÜDÜRMÜDÜRMÜDÜR
